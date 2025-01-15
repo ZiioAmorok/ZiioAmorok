@@ -23,5 +23,6 @@ Apart from coding, I enjoy:
 
 ## 🤝 Let's Connect
 - [LinkedIn](https://www.linkedin.com/feed/?trk=guest_homepage-basic_google-one-tap-submit)
+- [Gmail](adka95652@gmail.com)
 ---
 _“The best way to predict the future is to invent it.” – Alan Kay_
